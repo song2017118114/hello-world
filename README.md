@@ -2,4 +2,6 @@
 the first repository of sc
 
 my name is Ryan i like java hahaha!
-i added it prentend to be cool~
+
+i wanna be a better man !
+a happy boy~
